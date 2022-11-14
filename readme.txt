@@ -1,2 +1,0 @@
-jhjdhfjdnjv
-my student
